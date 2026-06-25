@@ -29,6 +29,9 @@
 
 - Write the dates on the container before putting in the refrigerator and check them every week.
 
+### Step 6
+ - Move the airtight container back to local use refrigerator.
+ - 
 
 
-
+###
