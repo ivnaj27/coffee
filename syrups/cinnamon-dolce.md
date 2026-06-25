@@ -31,3 +31,8 @@
 ### Step 5
 
 - Store and refrigerate for up to 2 weeks.
+
+### Step 6
+
+- Push the syrup to local refrigerator for use to customers.
+
