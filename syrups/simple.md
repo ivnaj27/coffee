@@ -24,3 +24,11 @@
 ### Step 4
 
 - Store syrup in an airtight container for up to two weeks.
+
+### Step 5
+
+- Write the dates on the container before putting in the refrigerator and check them every week.
+
+
+
+
